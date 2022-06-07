@@ -1,0 +1,1 @@
+# Informar-o-signo
